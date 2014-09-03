@@ -1,2 +1,0 @@
-Yuyu Qin
-Chicago Bulls
